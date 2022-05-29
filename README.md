@@ -1,5 +1,3 @@
-### Hi there 👋
-
 My name is pronounced like "shoe hey" :athletic_shoe: :wave:.
 
 <!--
